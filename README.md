@@ -1,16 +1,20 @@
-### Hi there 👋
+![sylveon_fan___button_by_howie62-d746per](https://github.com/Puufaz/boop/assets/138206114/fae39d25-48a0-4bca-8fc8-3d742d5e4197)
 
-<!--
-**Puufaz/Puufaz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![venom_bite_stamp_by_cassiecros13-dcsl5o7](https://github.com/Puufaz/boop/assets/138206114/386aa2a2-f88a-4778-b08e-91d990d5348e)![tumblr_pe3bcczlWN1xsk4lxo2_100](https://github.com/Puufaz/boop/assets/138206114/93f3a5fd-406c-414d-be63-9106da09cbe0)![tumblr_pgef2uZbKY1xzybrpo2_100](https://github.com/Puufaz/boop/assets/138206114/7c39a9da-5e83-4815-bea8-bfb6c786122c)![tumblr_oxzare7tkT1vywwpno1_100](https://github.com/Puufaz/boop/assets/138206114/1d04db41-81a8-414b-ad1d-5e1b7655e445)![stamp____vocaloid_by_u_sagi](https://github.com/Puufaz/boop/assets/138206114/482185a8-6644-4d44-8a66-5ebb434d571a)![63ec5412f302a26116cb048f79e0edce](https://github.com/Puufaz/boop/assets/138206114/a307e1e1-8137-4bfa-8214-da9296e6387f)![the_eeveelutions_by_marlenesstamps-d5ixc1x](https://github.com/Puufaz/boop/assets/138206114/a59b31cf-3be9-46eb-bafd-6f417a83326a)
 
-Here are some ideas to get you started:
+![0072-lesbian](https://github.com/Puufaz/boop/assets/138206114/8ce90c6c-4b0b-4643-8612-b8c757ebbf58)![tumblr_inline_pcjgdawteA1vss73l_250](https://github.com/Puufaz/boop/assets/138206114/a3e2ff21-ee55-4c2a-84dc-416f4a32e566)![pinkiepie](https://github.com/Puufaz/boop/assets/138206114/90091aac-c850-4f3b-a886-a2829daba0a6)![tumblr_inline_pgb4b7KDUB1v11djx_500](https://github.com/Puufaz/boop/assets/138206114/bb8e4019-9fa1-406a-95cc-b6ad6222c64b)![homo](https://github.com/Puufaz/boop/assets/138206114/5728fab2-dd7b-4fc3-826b-204314048197)
+![dodrugs](https://github.com/Puufaz/boop/assets/138206114/02e8e698-8f96-442c-a390-8994eac3f7cf)![lolzies](https://github.com/Puufaz/boop/assets/138206114/3dbacbd6-92f3-4bac-8408-e05147f01f8f)![2070458_b3615](https://github.com/Puufaz/boop/assets/138206114/13440c4b-4e0a-4e1f-856c-6f0e5aab69d7)![vjW02Hv](https://github.com/Puufaz/boop/assets/138206114/14241a34-2814-4d77-9ec4-c232faf650a3)
+![radiohead](https://github.com/Puufaz/boop/assets/138206114/abc1b282-65b7-48b6-ac54-614961d839b4)
+![KORN!!!!](https://github.com/Puufaz/boop/assets/138206114/37879875-b4ac-4a2c-b597-6895f485045f)![systemofadown](https://github.com/Puufaz/boop/assets/138206114/6bdb7e2d-38cd-44a5-8be4-ce6cfeaad1a3)![red-dead-redemption](https://github.com/Puufaz/boop/assets/138206114/3b15357b-8df6-4365-ba5a-8230ba8526e6)
+![outlast](https://github.com/Puufaz/boop/assets/138206114/8004210b-e992-46af-866a-37f51978d8a7)
+![bb](https://github.com/Puufaz/boop/assets/138206114/f3fdcb9f-7001-4983-8c4d-3fdfe09792b8)
+![jsjs](https://github.com/Puufaz/boop/assets/138206114/4d62cbf9-48f5-4fce-8268-df0f7c7cf297)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![mnmn_yes_by_n0n_artist-dax2rmv](https://github.com/Puufaz/boop/assets/138206114/68a45a07-5871-4224-9f63-5d51d1f64051)![stamp__the_office_by_djsoundwav](https://github.com/Puufaz/boop/assets/138206114/0987d452-6896-41de-b97b-a029c4c865cd)![kitten_shopping__d_by_frootza-d4jwrqr](https://github.com/Puufaz/boop/assets/138206114/64720f0c-be51-4030-bdeb-c9c6d849d2f6)![ddbm3xe-cb537bf6-bd51-435e-afa0-19a96541265a](https://github.com/Puufaz/boop/assets/138206114/6ee7fd99-2a08-49aa-bfbd-fa5aa17cb8ca)![dd9aydg-81ebb4bb-c5bb-4e7c-951a-b4653de05bc1](https://github.com/Puufaz/boop/assets/138206114/0a8a68e6-3ff5-4ccd-a2ab-82877614daed)![dd6kb1r-e79b3fdc-d305-4f46-b97d-2095eee68b3e](https://github.com/Puufaz/boop/assets/138206114/34864035-2456-462a-bd2d-8ad0ca62016e)![dd43nvh-f8d10842-8d31-42d4-9f38-7af5fab07574](https://github.com/Puufaz/boop/assets/138206114/95dbb602-f4a9-492e-bbbb-f38017ebcffa)![terf_stamp_by_finnstamps-dcixdwe](https://github.com/Puufaz/boop/assets/138206114/37643118-2432-4d9b-b947-2b7e03f83109)![ZJtRxZe](https://github.com/Puufaz/boop/assets/138206114/62b8c18f-501b-4f23-929c-b048c556be4d)![gpCKRor](https://github.com/Puufaz/boop/assets/138206114/b0d0708a-bd0b-4fe5-bd66-4f1c7aed529b)![iDHiYxz](https://github.com/Puufaz/boop/assets/138206114/37bf8d10-995f-4e83-bba8-eb5d05258ab3)![jU3wTIi](https://github.com/Puufaz/boop/assets/138206114/8e342c18-89e1-4491-b003-3aa7a4c8e5e7)![zelda](https://github.com/Puufaz/boop/assets/138206114/38e86c81-46c6-4dff-b2a1-2b3ac7b160fe)![cs67Stx](https://github.com/Puufaz/boop/assets/138206114/6d3389e5-a60f-4ae8-9204-dabfa255d6d6)![8D809rV](https://github.com/Puufaz/boop/assets/138206114/82c2262d-dfe0-465e-afb4-c5b818649d7e)![SoAfof5](https://github.com/Puufaz/boop/assets/138206114/67c2d1c5-0ae9-4d4c-8e2a-6d994f187bf6)![Sv8yjCP](https://github.com/Puufaz/boop/assets/138206114/257083a7-a39a-4e1e-a2fd-95b8316e39c9)![M8EJ7Db](https://github.com/Puufaz/boop/assets/138206114/588fa3f8-0a25-4afa-8f4e-c49e8e2ce023)![vNyGBar](https://github.com/Puufaz/boop/assets/138206114/30ffd1f3-3eb3-49f4-b88b-8f60e444c270)![tumblr_p0ei1ufbWL1soxiioo4_100](https://github.com/Puufaz/boop/assets/138206114/2d4063b7-9df4-4a32-a177-eb46b5cd09b6)![tumblr_pbl4whs7Xl1wlxvjlo9_100](https://github.com/Puufaz/boop/assets/138206114/efa4ecb2-8223-4c90-8e36-ebb7bb2e5d1e)
+![tumblr_834fe501d247c20e730860d1f2553b46_c39a7590_100](https://github.com/Puufaz/boop/assets/138206114/37881db1-5b1f-4a12-97e2-8fe1d84958a5)
+
+
+![YASS](https://github.com/Puufaz/boop/assets/138206114/53e9347c-e55d-42db-a762-0f8f944ae04e)
+
+![c50f9ae765e988d6ae7c3ad6fb36e0ee](https://github.com/Puufaz/boop/assets/138206114/2d74b4cf-ba05-4c45-86c8-d98484bb6f5d)
