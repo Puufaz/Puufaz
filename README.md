@@ -1,7 +1,8 @@
 
 
 ![kkkk](https://github.com/Puufaz/Puufaz/assets/138206114/4bcc000f-a779-4283-bcd6-1b3b8ef5f509) ![kkkk](https://github.com/Puufaz/Puufaz/assets/138206114/4bcc000f-a779-4283-bcd6-1b3b8ef5f509) ![kkkk](https://github.com/Puufaz/Puufaz/assets/138206114/4bcc000f-a779-4283-bcd6-1b3b8ef5f509) ![kkkk](https://github.com/Puufaz/Puufaz/assets/138206114/4bcc000f-a779-4283-bcd6-1b3b8ef5f509)
-![bb96fa89c3b64bad1aa384ca24a09f53](https://github.com/Puufaz/Puufaz/assets/138206114/26b367cf-cf30-4fee-bcae-abaeae8e3f37)
+![4169b1e8d764e2d39efd7512562a74b5](https://github.com/Puufaz/Puufaz/assets/138206114/8f40e354-1acc-405b-8da5-6171baa8b6b3)
+
 
 
 
