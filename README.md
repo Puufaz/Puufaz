@@ -4,11 +4,7 @@
 
   *tell me when you wanna come and get em"*
 
- <img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20">
-
 ![cc](https://i.pinimg.com/1200x/5c/f7/d3/5cf7d38da8471194290ef033e3c5531e.jpg)
-
-<img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="25">
 
 *"he looks like he works with his hands and smells like marlboro reds*
 
