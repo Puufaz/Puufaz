@@ -1,12 +1,10 @@
-*"I owe you a black eye and two kisses,*
+<p align="center">"I owe you a black eye and two kisses,</p>
 
+<p align="center">tell me when you wanna come and get em"</p>
 
-  *tell me when you wanna come and get em*"
-
-![cc](https://i.pinimg.com/736x/f0/15/e8/f015e80731b53ae000e88a1619ec7dd3.jpg)
-
-  
-
+<p align="center">
+  <img width="460" height="300" src="https://i.pinimg.com/736x/f0/15/e8/f015e80731b53ae000e88a1619ec7dd3.jpg">
+</p>
 
 
 
