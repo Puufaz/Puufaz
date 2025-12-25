@@ -8,9 +8,11 @@
 
 ![cc](https://i.pinimg.com/1200x/5c/f7/d3/5cf7d38da8471194290ef033e3c5531e.jpg)
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="50"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="50"> *"he looks like he works with his hands and smells like marlboro reds*
+<img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="25">
 
-*it makes me so, uh, and i can't get enough of it"*
+*"he looks like he works with his hands and smells like marlboro reds*
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"> *it makes me so, uh, and i can't get enough of it"*
   
 <img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20"><img src="https://upload.wikimedia.org/wikipedia/commons/4/42/Invisible_square.png" width="20">
 
